@@ -9,11 +9,13 @@
 
 [Sakura Micron 1mm black](http://amzn.com/B0026HL23Y) (_bolder lines_)
 
-[Tombow dual tip - Cool Grey](http://amzn.com/B000KNQ0NS) (_light shadows_)
+[Tombow dual tip - Cool Grey N95](http://amzn.com/B000KNQ0NS) (_light shadows_)
 
-[Tombow dual tip - Chinese Red](http://amzn.com/B000XAORFQ) (_bigger annotations_)
+[Tombow dual tip - Cool Grey N65](http://amzn.com/B000KNJUOY) (_dark shadows_)
 
-[Tombow dual tip - Baby Yellow](http://amzn.com/B000KNJUBW) (_highlights and emphasis_)
+[Tombow dual tip - Chinese Red 856](http://amzn.com/B000XAORFQ) (_bigger annotations_)
+
+[Tombow dual tip - Baby Yellow 090](http://amzn.com/B000KNJUBW) (_highlights and emphasis_)
 
 #### Notebooks
 [Moleskine XL](http://amzn.com/8883707265)
