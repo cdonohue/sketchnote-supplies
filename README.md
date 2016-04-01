@@ -3,10 +3,7 @@
 
 #### Pens
 [Sakura Micron .45mm black](http://amzn.com/B007OQ2RPE)
-> This is the pen I use about 95% of the time
-
-- soft tip, so it doesn't dig through paper like a ballpoint
-- useful for both writing _and_ sketching
+> This is the pen I use about 95% of the time. It has a soft tip, so it doesn't dig through paper like a ballpoint and it's useful for both writing _and_ sketching
 
 [Sakura Micron .35mm red](http://amzn.com/B0019CZZBW) (_annotations_)
 
